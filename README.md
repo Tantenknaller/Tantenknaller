@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Tantenknaller
+- 👀 I’m interested in tanten knallen
+- 🌱 I’m currently learning knalling the aunts
+- 💞️ I’m looking to collaborate on knalling with u <3
+- 📫 How to reach me dm's ;) bby gril <3
+- 😄 Pronouns: tanten/knaller
+- ⚡ Fun fact: i like too knäll tänten
